@@ -1,1 +1,0 @@
-# Aprenda Campo Harmonico
